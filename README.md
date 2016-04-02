@@ -94,12 +94,12 @@ Creado por
 [Retrogameaudio](http://retrogameaudio.tumblr.com)
 
 ### Youtube
-https://www.youtube.com/watch?v=73VLMNMaRAQ&feature=youtu.be
-https://www.youtube.com/watch?v=V8CleCg1VDk
-https://www.youtube.com/watch?v=PHsp5jrJ7To
-https://www.youtube.com/watch?v=HAgM3KNhSLc
-https://www.youtube.com/watch?v=B2ZgdcRkQYY
-https://www.youtube.com/watch?v=RTYy31XJUf0
+
+- https://www.youtube.com/watch?v=73VLMNMaRAQ&feature=youtu.be
+- https://www.youtube.com/watch?v=V8CleCg1VDk
+- https://www.youtube.com/watch?v=PHsp5jrJ7To
+- https://www.youtube.com/watch?v=HAgM3KNhSLc
+- https://www.youtube.com/watch?v=B2ZgdcRkQYY
 
 
 
